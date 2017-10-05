@@ -104,5 +104,17 @@ lực đào kim
 How can I change the style with CSS?﻿
 
 
-
+https://www.deviantart.com
+https://pixabay.com/
+https://www.pexels.com/
+http://365psd.com
+https://color.adobe.com/
+https://www.dafont.com/
+https://www.1001freefonts.com/
+http://www.pngmart.com
+http://www.pngall.com/
+http://www.Freepik.com
+http://www.freevector.com
+http://www.fontsquirrel.com
+http://www.Pinterest.com
 
